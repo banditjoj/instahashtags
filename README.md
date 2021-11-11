@@ -90,7 +90,7 @@
 </details>
 
 <details>
-	<summary># Worked Up Art</summary>
+	<summary># Worked Up / General Art</summary>
 
 ```
 🌱
