@@ -47,49 +47,41 @@
 <details>
 	<summary># Digital Art</summary>
 
-1
 ```
 🌕
 #banditjoj 
 ```
 
-2
 ```
 🌖
 #banditjoj 
 ```
 
-3 
 ```
 🌗
 #banditjoj 
 ```
 
-4
 ```
 🌘
 #banditjoj 
 ```
 
-5
 ```
 🌑
 #banditjoj 
 ```
 
-6
 ```
 🌒
 #banditjoj 
 ```
 
-7
 ```
 🌓
 #banditjoj 
 ```
 
-8
 ```
 🌔
 #banditjoj 
@@ -100,49 +92,41 @@
 <details>
 	<summary># Worked Up Art</summary>
 
-1
 ```
 🌕
 #banditjoj 
 ```
 
-2
 ```
 🌖
 #banditjoj 
 ```
 
-3 
 ```
 🌗
 #banditjoj 
 ```
 
-4
 ```
 🌘
 #banditjoj 
 ```
 
-5
 ```
 🌑
 #banditjoj 
 ```
 
-6
 ```
 🌒
 #banditjoj 
 ```
 
-7
 ```
 🌓
 #banditjoj 
 ```
 
-8
 ```
 🌔
 #banditjoj 
@@ -155,49 +139,41 @@
 <details>
 	<summary># Template</summary>
 
-1
 ```
 🌕
 #banditjoj 
 ```
 
-2
 ```
 🌖
 #banditjoj 
 ```
 
-3 
 ```
 🌗
 #banditjoj 
 ```
 
-4
 ```
 🌘
 #banditjoj 
 ```
 
-5
 ```
 🌑
 #banditjoj 
 ```
 
-6
 ```
 🌒
 #banditjoj 
 ```
 
-7
 ```
 🌓
 #banditjoj 
 ```
 
-8
 ```
 🌔
 #banditjoj 
