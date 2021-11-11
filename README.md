@@ -3,42 +3,50 @@
 
 1
 ```
-#banditjoj #pleinairpril #tinypaintings #paintingofinstagram #tinysketch #zeichnenmachtglücklich #paintingday #gouachepaintings #newpaintings #nopleinnogain #creativepainting #paintonpaper #paintersoninstagram #instapaintings #paintingsonpaper #paintingsoftheday
+.
+#banditjoj #paintingofinstagram #smallpainting #paintingday #paintingsonpaper #speedpainting #originalpaintings #instaartiste #絵描き #dibujodiario #paintdaily #global_artist #myartisreal #paintingsoftheday #newpaintings #tinypaintings #paintersoninstagram #zeichnenmachtglücklich #creativeculture #instapaintings #gouachepaintings #draweverydaydraweveryway #nopleinnogain #tinysketch #paintonpaper #creativepainting #gouacheillustration #sketchbook #dibujotradicional #pleinairpril
 ```
 
 2
 ```
-#banditjoj #nopleinnogain #gouchepainting #paintingsoftheday #paintingday #tinysketch #paintersoninstagram #gouacheonpaper #paintonpaper #tinypaintings #zeichnenmachtglücklich #instapaintings #paintingsonpaper #mypaintings #quickpainting #pleinairpril
+.
+#banditjoj #paintonpaper #paintersoninstagram #colourfulart #dibujodeldia #絵を描く #gouachepainting #instapaintings #pleinairpril #gouacheart #künstler #paintingsoftheday #paintingonpaper #gouchepainting #paintingsonpaper #createveryday #creativethinkers #tinypaintings #allaprima #instaartiste #mypaintings #creativeculture #paintingday #tinysketch #zeichnenmachtglücklich #gouacheartist #quickpainting #smallpaintings #gouacheonpaper #nopleinnogain
 ```
 
 3 
 ```
-#banditjoj #paintingsoftheday #künst #paperpainting #paintingofinstagram #tinysketch #joyofpainting #zeichnenmachtglücklich #quickpainting #paintonpaper #gouchepainting #tinypaintings #pleinairpril #mypaintings #paintingsonpaper #pleinairmag
+.
+#banditjoj #tinypaintings #gouchepainting #pleinairmag #zeichnungen #圖畫 #pleinairpril #zeichnenmachtglücklich #creativethinkers #allaprimapainting #mypaintings #paintinginprogress #paintingofinstagram #gouacheillustration #originalpainting #pleinair #paintingsonpaper #myartjourney #künst #絵画 #instaartiste #草稿 #paintingsoftheday #插畫家 #paintonpaper #tinysketch #smallworks #paperpainting #quickpainting #joyofpainting
 ```
 
 4
 ```
-#banditjoj #gouachepaintings #joyofpainting #newpaintings #gouacheonpaper #zeichnenmachtglücklich #tinypaintings #quickpainting #nopleinnogain #paintonpaper #gouchepainting #instapaintings #pleinairmag #paintersoninstagram #paperpainting #originalpaint
+.
+#banditjoj #일러스타그램 #traditionalart #paperpainting #gouache #speedpainting #zeichnung #traditionalartwork #gouachepaintings #paintonpaper #creativeculture #joyofpainting #gouacheonpaper #newpainting #zeichnenmachtglücklich #paintersoninstagram #instapainting #paintinginprogress #newpaintings #myartjourney #global_artist #quickpainting #tinypaintings #gouchepainting #instapaintings #instaartiste #paintpaintpaint #paintingfromlife #pleinairmag #artetradicional
 ```
 
 5
 ```
-#banditjoj #originalpaint #tinysketch #paintingsonpaper #paintingday #paintersoninstagram #pleinairmag #creativepainting #gouachepaintings #mypaintings #newpaintings #gouacheonpaper #joyofpainting #paintingsoftheday #instapaintings #nopleinnogain
+.
+#banditjoj #traditionalartist #dessiner #pleinairpainter #paintingsonpaper #myartjourney #zeichnen #paintersoninstagram #creativepainting #creativethinkers #instapaintings #myartisreal #creativeculture #gouachepaint #tinysketch #gouacheillustration #paintingday #nopleinnogain #mypaintings #speedpainting #createveryday #originalpaint #pleinairmag #joyofpainting #pleinairpainting #newpaintings #gouachepaintings #paintingsofinstagram #gouacheonpaper #paintingsoftheday
 ```
 
 6
 ```
-#banditjoj #pleinairpril #pleinairmag #newpaintings #mypaintings #paintingsoftheday #joyofpainting #paperpainting #tinysketch #nopleinnogain #gouacheonpaper #paintingday #gouachepaintings #creativepainting #quickpainting #tinypaintings
+.
+#banditjoj #quickpainting #tinypaintings #paintingday #creativepainting #圖畫 #künstler #tinysketch #paintingfromlife #newpaintings #paintingsoftheday #pleinairpril #gouachepainting #nopleinnogain #originalpainting #dibujosacolor #colourfulart #草稿 #instaartiste #myartjourney #paperpainting #originalpaintings #gouachepaintings #絵を描くenpleinair #pleinairmag #joyofpainting #mypaintings #gouacheillustration #gouacheonpaper
 ```
 
 7
 ```
-#banditjoj #gouacheonpaper #paintingofinstagram #mypaintings #joyofpainting #paintersoninstagram #nopleinnogain #paintingsonpaper #tinypaintings #gouachepaintings #newpaintings #tinysketch #gouchepainting #paintonpaper #originalpaint #instapaintings
+.
+#banditjoj #pleinairpainting #tinypaintings #creativeculture #gouacheonpaper #joyofpainting #originalpaint #paintonpaper #allaprima #tinysketch #paintingofinstagram #gouachepaintings #staycreative #creativethinkers #createveryday #zeichnungen #artetradicional #nopleinnogain #paintingsonpaper #dibujotradicional #newpaintings #草稿 #gouacheartist #speedpainting #paintersoninstagram #mypaintings #gouacheart #gouchepainting #instapaintings #絵を描く
 ```
 
 8
 ```
-#banditjoj #künst #quickpainting #paintingsoftheday #gouachepaintings #paperpainting #originalpaint #paintersoninstagram #instapaintings #zeichnenmachtglücklich #newpaintings #pleinairmag #paintingofinstagram #joyofpainting #pleinairpril #paintingchallenge
+.
+#banditjoj #creativeculture #sketchbook #pleinairpainter #pleinairpril #gouachepaintings #instapainting #gouacheillustration #originalpaint #draweverydaydraweveryway #global_artist #instaartiste #pleinair #zeichnenmachtglücklich #createveryday #paintersoninstagram #instapaintings #newpaintings #gouacheart #paintingofinstagram #paintingsofinstagram #paperpainting #quickpainting #pleinairmag #paintingsoftheday #künst #paintingchallenge #smallpainting #描く #joyofpainting
 ```
   
 </details>
