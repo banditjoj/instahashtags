@@ -32,12 +32,12 @@
 ```
 
 ```
-🌗
+🌓
 #banditjoj #pleinairpainting #tinypaintings #creativeculture #gouacheonpaper #joyofpainting #originalpaint #paintonpaper #allaprima #tinysketch #paintingofinstagram #gouachepaintings #staycreative #creativethinkers #createveryday #zeichnungen #artetradicional #nopleinnogain #paintingsonpaper #dibujotradicional #newpaintings #草稿 #gouacheartist #speedpainting #paintersoninstagram #mypaintings #gouacheart #gouchepainting #instapaintings #絵を描く
 ```
 
 ```
-🌖
+🌔
 #banditjoj #creativeculture #sketchbook #pleinairpainter #pleinairpril #gouachepaintings #instapainting #gouacheillustration #originalpaint #draweverydaydraweveryway #global_artist #instaartiste #pleinair #zeichnenmachtglücklich #createveryday #paintersoninstagram #instapaintings #newpaintings #gouacheart #paintingofinstagram #paintingsofinstagram #paperpainting #quickpainting #pleinairmag #paintingsoftheday #künst #paintingchallenge #smallpainting #描く #joyofpainting
 ```
   
@@ -49,42 +49,158 @@
 
 1
 ```
+🌕
 #banditjoj 
 ```
 
 2
 ```
+🌖
 #banditjoj 
 ```
 
 3 
 ```
+🌗
 #banditjoj 
 ```
 
 4
 ```
+🌘
 #banditjoj 
 ```
 
 5
 ```
+🌑
 #banditjoj 
 ```
 
 6
 ```
+🌒
 #banditjoj 
 ```
 
 7
 ```
+🌓
 #banditjoj 
 ```
 
 8
 ```
+🌔
 #banditjoj 
 ```
 
-# Worked Up Art
+</details>
+
+<details>
+	<summary># Worked Up Art</summary>
+
+1
+```
+🌕
+#banditjoj 
+```
+
+2
+```
+🌖
+#banditjoj 
+```
+
+3 
+```
+🌗
+#banditjoj 
+```
+
+4
+```
+🌘
+#banditjoj 
+```
+
+5
+```
+🌑
+#banditjoj 
+```
+
+6
+```
+🌒
+#banditjoj 
+```
+
+7
+```
+🌓
+#banditjoj 
+```
+
+8
+```
+🌔
+#banditjoj 
+```
+
+</details>
+
+--------------------------------------------------
+
+<details>
+	<summary># Template</summary>
+
+1
+```
+🌕
+#banditjoj 
+```
+
+2
+```
+🌖
+#banditjoj 
+```
+
+3 
+```
+🌗
+#banditjoj 
+```
+
+4
+```
+🌘
+#banditjoj 
+```
+
+5
+```
+🌑
+#banditjoj 
+```
+
+6
+```
+🌒
+#banditjoj 
+```
+
+7
+```
+🌓
+#banditjoj 
+```
+
+8
+```
+🌔
+#banditjoj 
+```
+
+</details>
