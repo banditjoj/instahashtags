@@ -1,6 +1,40 @@
-# Insta Hashes
-
+<details>
+  <summary># Plein Air Traditional</summary>
 
 ```
-this is a test block
+#banditjoj 
 ```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+
+```
+#banditjoj 
+```
+  
+</details>  
+
+# Digital Art
+
+# Worked Up Art
