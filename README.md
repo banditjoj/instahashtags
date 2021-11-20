@@ -150,9 +150,7 @@
 </details>
 
 
-<details>
-	
-	<summary># Shuffle</summary>
+<details> <summary># Shuffle</summary>
 
 Plein Air
 ```
