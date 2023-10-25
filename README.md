@@ -1,41 +1,15 @@
 
-General & Concept Art
+General
 ```
-#art #artist #artists #artwork #artconcept #arteveryday #artistsoninstagram #artofinstagram #artoninstagram #artpainting #conceptart #conceptartdesign #conceptartist #conceptarts #conceptartwork #conceptdesign #conceptdrawing #conceptualartist #createveryday #creativearts #creativeculture #creativedesign #creativesofinstagram #creativespace #creativethinkers #creativethinking #creativework #doodle #dailydrawings #dailysketch #dailysketches #drawing #draweveryday #draweverydaydraweveryway #global_artist #illust #illustration #illustrations #illustrator #illustrationoftheday #illustratorofinstagram #illustratorsoninstagram #illustrationartists #illustrationdaily #illustrationart #illustration_daily #illustrationartist #instaarte #instaartiste #instaartists #instaarts #instaartsy #lovetocreate #myartisreal #myartjourney #myarts #myartwork #painting #paintingart #proartists #staycreative #visualdevelopment
-
-
-#artistsoninstagram
-#artistsofinstagram
-#artstagram
-#instaartist
-#artists
-#instaart
-#contemporaryart
-#conceptart
-#sketch
-#draw
-#sketchbook
-#illustrations
-
-#illustrator
-#sketchbook
-#artgallery
-#art_spotlight
-#artistsdrop
-#artofinstagram
-#arts_help
-#artcollective
-#worldofartists
-#doodle
-#artworks
-#artlovers
-#artnerd
-#artsanity
-#artoninstagram
-#proartists
+#art #artists #artistsofinstagram #artistsoninstagram #artistsupport #artstagram #artwork #concept #conceptartist #conceptart #conceptartwork #illust #illustgram #illustration #illustrationartists #illustrator #instaart #instaartist #originalart #painting #visdev #visualdevelopment #그림 #그림그리기 #그림스타그램 #그림연습 #미술 #아트 #일러스트 #일러스트레이션 #イラスト #イラストグラム #いらすとぐらむ #イラストレーター #創作イラスト #插图 #画 #絵 #絵画
 ```
 
-Plein Air
+Lineart
 ```
-#allaprima #allaprimapainting #colorfulart #creativepainting #gouache #gouacheart #gouacheartist #gouacheillustration #gouacheonpaper #gouachepaint #gouachepainting #gouachepaintings #gouchepainting #instapainting #instapaintings #joyofpainting #mypaintings #newpainting #newpaintings #nopleinnogain #originalpaint #originalpainting #originalpaintings #paintdaily #paintersoninstagram #paintingchallenge #paintingday #paintingfromlife #paintinginprogress #paintingofinstagram #paintingonpaper #paintingsofinstagram #paintingsoftheday #paintingsonpaper #paintonpaper #paintpaintpaint #paperpainting #pleinair #pleinairmag #pleinairpainter #pleinairpainting #pleinairpril #quickpainting #sketchbook #smallpainting #smallpaintings #smallworks #speedpainting #tinypaintings #tinysketch #traditionalart #traditionalartist #traditionalartwork #gouachepleinair #painteveryday #paintingaday #paintingeveryday
+#art #artists #artistsofinstagram #artistsoninstagram #artistsupport #artstagram #artwork #concept #conceptartist #conceptart #conceptartwork #illust #illustgram #illustration #illustrationartists #illustrator #instaart #instaartist #originalart #visdev #visualdevelopment #그림 #그림그리기 #그림스타그램 #그림연습 #미술 #손그림 #아트 #일러스트 #일러스트레이션 #イラスト #イラストグラム #いらすとぐらむ #イラストレーター #創作イラスト #插图 #画 #絵 #絵画 #drawing #드로잉 #소묘 #연필 #연필드로잉
+```
+
+Sketch
+```
+#art #artists #artistsofinstagram #artistsoninstagram #artistsupport #artstagram #artwork #concept #conceptartist #conceptart #conceptartwork #illust #illustgram #illustration #illustrationartists #illustrator #instaart #instaartist #originalart #visdev #visualdevelopment #그림 #그림그리기 #그림스타그램 #그림연습 #미술 #손그림 #아트 #일러스트 #일러스트레이션 #イラスト #イラストグラム #いらすとぐらむ #イラストレーター #創作イラスト #插图 #画 #絵 #絵画 #drawing #드로잉 #소묘 #연필 #연필드로잉 #doodle #sketch #두들 #스케치 #낙서 #낙서스타그램 #らくがき #rkgk
 ```
